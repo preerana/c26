@@ -1,0 +1,1 @@
+egg , salt, water,chili, corinder
